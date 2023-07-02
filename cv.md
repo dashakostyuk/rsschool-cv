@@ -11,7 +11,8 @@
 
 
 ## Education :
-Moscow state University of Technologies and Management named after k. G. Razumovskiy  
+Bachelor - Moscow state University of Technologies and Management named after k. G. Razumovskiy
+
 
 
 ## Languages :
